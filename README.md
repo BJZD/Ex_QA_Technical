@@ -1,0 +1,1 @@
+# Ex_QA_Technical
